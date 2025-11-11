@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **HTML / CSS**
 
-- 📫 How to reach me **yoamishishir@gmail.com**
+- 📫 How to reach me **shishir.s.contact@gmail.com**
 
 - ⚡ Fun fact **I think Iam so funny 😃!!**
 
